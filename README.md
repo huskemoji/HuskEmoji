@@ -1,2 +1,2 @@
 # HuskEmoji
-HuskEmoji Privacy Policy
+
